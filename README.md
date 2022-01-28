@@ -1,2 +1,0 @@
-# Erineko
-Nya nya nya
